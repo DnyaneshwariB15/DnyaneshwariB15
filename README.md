@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @DnyaneshwariB15
-- 🌱 I’m currently pursuing Btech in CS
+- 👋 Hi, I’m Dnyaneshwari Bhosale
+- 🌱 I’m currently pursuing Btech in CS from MITAOE
 - 😄 Pronouns: She/Her
 
 
